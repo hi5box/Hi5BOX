@@ -1,4 +1,4 @@
-&nbsp&nbsp&nbsp“NFT” makes everything possible...”
+&nbsp;&nbsp;&nbsp;“NFT” makes everything possible...”
 &nbsp&nbsp&nbspThis March, a JPG image was sold at the price of 70,000 dollars, making NFT a 
 hot topic for discussion. The launch of the blockchain game Axie Infinity pushed the 
 concept of “NFT+Gamefi” to the peak of public attention. </br>
