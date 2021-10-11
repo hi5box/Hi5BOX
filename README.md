@@ -1,8 +1,8 @@
-“NFT” makes everything possible...” </br>
+“NFT” makes everything possible...” 
 
 This March, a JPG image was sold at the price of 70,000 dollars, making NFT a 
 hot topic for discussion. The launch of the blockchain game Axie Infinity pushed the 
-concept of “NFT+Gamefi” to the peak of public attention. </br>
+concept of “NFT+Gamefi” to the peak of public attention. 
 
 In the latter half of this year, internet giants at home and abroad successively 
 released their own NFT works, and NFT has officially come into public focus from its 
